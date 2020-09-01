@@ -1,2 +1,3 @@
 2030. The year everything will change. No more papers. Everything will involve artificial intelligence. The story of IT.
 Of course, if everything involves IT, the online games will all improve. Who knew my life would be a replica of the show Ready Player One...
+I was game addicted
