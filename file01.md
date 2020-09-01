@@ -1,1 +1,2 @@
-one sunny day, i went to macdonalds to eat brekfast as i wanted to get fat. when i reached, i saw my friend tom. i know him from primary school and he is the fattest person i knew. he is 300kg!!!! 
+2030. The year everything will change. No more papers. Everything will involve artificial intelligence. The story of IT.
+Of course, if everything involves IT, the online games will all improve. Who knew my life would be a replica of the show Ready Player One...
